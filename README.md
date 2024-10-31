@@ -16,4 +16,4 @@ For all as lief as not.
 With blind sheep groping every hill,
 Searching an oriflamme,
 How shall the shpherd heart then thrill
-To only the darker lamb?
+To only the darker lamb??
